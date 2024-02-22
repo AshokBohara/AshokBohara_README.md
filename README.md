@@ -1,6 +1,6 @@
 hey welcome to my github
 its me ashok bohara 
-im here to know about 
+i am here to know about 
 github 
 
 
